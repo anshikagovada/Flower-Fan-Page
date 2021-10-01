@@ -14,6 +14,8 @@ Sunflowers are bright yellow flowers that will usually cheer you up. They are ni
 ## Jasmines
 Jasmines are my personal favorite. They are beautiful white flowers that have an amazing smell. I just love tieing them togther onto string and putting it is my hair overnight. It makes my hair have that beautiful scent. The flower itself are pretty small making it very easy to just take a few when leaving. Jasmines are typically grown in warmer temperatures.
 
+![Jasmines](https://user-images.githubusercontent.com/91549937/135557895-0899a92d-9844-41d6-85c7-755c3f8d13eb.jpg)
+
 ## Tulips
 Tulips are flowers that are known for their shape. The flower is perfectly symmetrical. Also tulips come in very bold colors and usually grow in fields. Having a pinic in these fields on an afternoon would be amazing. Looking at them in from a distance, your view will just be absolutely gorgeous.
 
